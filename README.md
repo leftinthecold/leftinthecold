@@ -10,6 +10,6 @@
 
 - I'm offtab or unresponsive a lot, but I do appreciate crowns/people sitting with me even if I don't respond/respond late
 - Suuuper nervous when interacting at times so I will usually just sit w/ friends + avoid people I don't know
-- mentally ill, I can be paranoid or high anxiety or depressive at times and it does affect how I interact. So I usually put iwc or iwec in my name
+- mentally ill, I can be paranoid or high anxiety or depressive at times and it does affect how I interact. So I usually put iwc or iwec in my name when i feel like that
 
 anyways thank you for reading, my strawpage has the less warning-y stuff :)
