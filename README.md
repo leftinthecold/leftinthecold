@@ -1,4 +1,4 @@
-<img width="1200" height="970" alt="image" src="https://github.com/user-attachments/assets/c0934119-0b6c-4220-a105-0af16522cb00" />
+<img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/c0934119-0b6c-4220-a105-0af16522cb00" />
 
 # Hello, my name is B
 ## Also like to be called Bucky or Bruce if you would prefer that
