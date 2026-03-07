@@ -1,4 +1,4 @@
-# <img width="577" height="433" alt="image" src="https://github.com/user-attachments/assets/c0934119-0b6c-4220-a105-0af16522cb00" />
+<img width="1200" height="970" alt="image" src="https://github.com/user-attachments/assets/c0934119-0b6c-4220-a105-0af16522cb00" />
 # Hello, my name is B
 ## Also like to be called Bucky or Bruce if you would prefer that
 he/they - American [ENG only]
@@ -10,4 +10,4 @@ he/they - American [ENG only]
 - mentally ill, I can be paranoid or high anxiety or depressive at times and it does affect how I interact. So I usually put iwc or iwec in my name
 
 anyways thank you for reading, my strawpage has the less warning-y stuff :)
-<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/61a2c7b9-83a9-4b41-af01-af0479b07529" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/61a2c7b9-83a9-4b41-af01-af0479b07529" />
