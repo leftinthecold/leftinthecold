@@ -13,6 +13,3 @@ he/they - American [ENG only]
 - mentally ill, I can be paranoid or high anxiety or depressive at times and it does affect how I interact. So I usually put iwc or iwec in my name
 
 anyways thank you for reading, my strawpage has the less warning-y stuff :)
-
-<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/5b14156a-1364-4f5f-bb85-38990d5de4a5" />
-
