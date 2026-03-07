@@ -2,7 +2,7 @@
 
 # Hello, my name is B
 ## Also like to be called Bucky or Bruce if you would prefer that
-he/they - American [ENG only]
+### he/they - American [ENG only]
 
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/f9ad805c-ed25-4da9-bc27-566548c77001" />
 
