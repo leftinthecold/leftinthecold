@@ -15,6 +15,6 @@ $\color{#455763}{\textsf{- mentally ill, I can be paranoid/anxious/depressive at
 
 $\color{#8AA6B5}{\textsf{anyways thank you for reading, my strawpage has the less warning-y stuff :)}}$
 
-<img width="60" src="https://komarev.com/ghpvc/?username=leftinthecold&label=awesome+people&color=B0A16D">
+<img width="75" src="https://komarev.com/ghpvc/?username=leftinthecold&label=awesome+people&color=B0A16D">
 
 
