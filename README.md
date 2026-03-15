@@ -3,7 +3,7 @@
 <p align="center"> $\Large\color{#D1E5E8}{\textsf{𝙃𝙞, 𝙄'𝙢 𝘽}}$ <br/>
 <p align="center"> $\large\color{#6E8D9C}{\textsf{𝘩𝘦/𝘵𝘩𝘦𝘺 - 𝘈𝘮𝘦𝘳𝘪𝘤𝘢𝘯 [𝘌𝘕𝘎 𝘰𝘯𝘭𝘺]}}$
 
-<p align="center">[strawpage](https://nighttimeantics.straw.page) ★ [atabook](https://leftinthecold.atabook.org) ★ maybe future carrd or rentry</p>
+<p align="center">https://nighttimeantics.straw.page ★ https://leftinthecold.atabook.org ★ maybe future carrd or rentry</p>
 
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/f9ad805c-ed25-4da9-bc27-566548c77001" />
 
