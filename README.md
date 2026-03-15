@@ -3,6 +3,7 @@
 <p align="center"> $\Large\color{#D1E5E8}{\textsf{𝙃𝙞, 𝙄'𝙢 𝘽}}$
 
 <p align="center"> $\large\color{#6E8D9C}{\textsf{𝘩𝘦/𝘵𝘩𝘦𝘺 - 𝘈𝘮𝘦𝘳𝘪𝘤𝘢𝘯 [𝘌𝘕𝘎 𝘰𝘯𝘭𝘺]}}$
+## 
 
 [strawpage](https://nighttimeantics.straw.page) ★ [atabook](https://leftinthecold.atabook.org) ★ maybe future carrd or rentry
 
