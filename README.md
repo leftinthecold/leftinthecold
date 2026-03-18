@@ -7,13 +7,13 @@
 
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/f9ad805c-ed25-4da9-bc27-566548c77001" />
 
-<p align="center"> I'm not gonna put much on here, go to strawpage for more than the most straightforward byi
+<p align="center"> I'm not gonna put much on here, go to strawpage/carrd for more than the most straightforward byi
 
 $\color{#455763}{\textsf{- I'm offtab or unresponsive a lot, but I do appreciate crowns/people sitting with me even if I don't respond/respond late}}$
 $\color{#455763}{\textsf{- Suuuper nervous when interacting at times so I will usually just sit w/ friends + avoid people I don't know}}$
 $\color{#455763}{\textsf{- mentally ill, I can be paranoid/anxious/depressive at times and it does affect how I interact. So I usually put iwc or iwec in my name when i feel like that}}$
 
-$\color{#8AA6B5}{\textsf{anyways thank you for reading, my strawpage has the less warning-y stuff :)}}$
+$\color{#8AA6B5}{\textsf{anyways thank you for reading, this is rlly just a quick byi here}}$
 
 <img width="140" src="https://komarev.com/ghpvc/?username=leftinthecold&label=awesome+people&color=B0A16D">
 
