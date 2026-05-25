@@ -23,7 +23,6 @@ $\color{#455763}{\textsf{of this}}$
 $\color{#455763}{\textsf{- don't insult any of my friends i will probably get super upset and say some not-so-kind things}}$
 
 $\color{#455763}{\textsf{- i don't ship anything, my super rare exceptions are canon only. i dont mind ships or hanging out with shippers i'm just neutral on literally anything}}$
-
 $\color{#455763}{\textsf{unless its straight up bad or illegal, in which case it gets the big thumbsdown}}$
 
 
