@@ -16,8 +16,8 @@ $\color{#455763}{\textsf{- Suuuper nervous when interacting at times so I will u
 $\color{#455763}{\textsf{- mentally ill, I can be paranoid/anxious/depressive at times and it does affect how I interact. So I usually put iwc or iwec in my name when i feel like}}$ 
 $\color{#455763}{\textsf{that}}$
 
-$\color{#455763}{\textsf{- lowkey i can be kind of mean if you're a fellow kin of bucky or bruce or share the name B. this is not targeted i promis}}$
-$\color{#455763}{\textsf{e i'm just rlly protective about}}$
+$\color{#455763}{\textsf{- lowkey i can be kind of mean if you're a fellow kin of bucky or bruce or share the name B. this is not targeted i }}$
+$\color{#455763}{\textsf{promise i'm just rlly protective about}}$
 $\color{#455763}{\textsf{those things and may or may not come off as resentful for no reason unless you are like the one person (cough cough moony) im normal with abt any}}$
 $\color{#455763}{\textsf{of this}}$
 
